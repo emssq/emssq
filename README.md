@@ -5,4 +5,4 @@
 
 ⠀⠀⠀⠀⠀⠀⠀" Simon, can you hear me ? 
 ⠀⠀⠀⠀⠀⠀⠀ Luckily, you can't. 
-⠀⠀⠀⠀⠀⠀⠀ And i no longer hear. "
+⠀⠀⠀⠀⠀⠀⠀ And I no longer hear. "
